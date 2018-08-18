@@ -5,4 +5,3 @@
 
 联系邮箱: 3095501410@qq.com
 
-https://is1-ssl.mzstatic.com/image/thumb/Purple115/v4/0d/32/f7/0d32f79c-d440-9620-382a-931e12e022e1/pr_source.png/0x0ss.jpg
